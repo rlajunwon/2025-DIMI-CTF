@@ -1,2 +1,3 @@
 # 2025-DIMI-CTF
-### DIMI{D0_you_kn0w?_h0w_toooooooooo_us2_g1t_hub???}
+### DIMI{[DELETED]}
+## -> 위 FLAG는 진짜 FLAG가 아닙니다!!
